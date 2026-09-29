@@ -1,1 +1,1 @@
-# SEP-QUIS
+# SEP-QUIz
